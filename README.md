@@ -1,2 +1,0 @@
-# neumaticc.github.io
-lol
